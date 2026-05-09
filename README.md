@@ -1,1 +1,0 @@
-# giakhansa_kode
